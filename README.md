@@ -48,7 +48,7 @@ Contributions, issues, and suggestions are welcome!
 
 📬 Contact
 
-LinkedIn: (Add your profile link)
+LinkedIn: (www.linkedin.com/in/abdul-raheem-shahid-4a2440401)
 
 ⭐ Support
 
